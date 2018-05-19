@@ -9,3 +9,14 @@ calling for all the art..
 
 
 Make beautiful things...Its a better world to be in ...Feel good about it
+
+# illustrator
+I even tried my hand a bit at making graphics for various purposes sometimes for using it somewhere 
+but most of the times just for making something really good happen and for fun.
+
+# premiere pro
+besides this i also did a lot of video editing for youtubers i knew.
+Aartworks Entertainment and Aashish Gade entertainment are the channels that have videos that i have
+edited.do give them a view and yeah dont forget to like share and subscribe
+
+
